@@ -1,0 +1,1 @@
+This recipe is a simple way to make a healthy choclate lava cake. It only uses 4 ingredients  and serves 3.  
